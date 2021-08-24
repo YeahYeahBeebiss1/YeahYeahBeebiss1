@@ -1,0 +1,6 @@
+- Hi, I’m @YeahYeahBeebiss1
+- I’m interested in Touhou Project
+- I’m currently learning Macedonian
+- I’m looking to collaborate on pridebot (discord bot)
+- How to reach me: Scratch at YeahYeahBeebiss1 or eMail at duolingoowl27@gmail.com
+- Fun fact: I suck at coding
